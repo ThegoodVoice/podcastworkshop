@@ -51,10 +51,10 @@ training-podcasting101-ebooks-etc
 Get in touch to discuss your next project, or just say hello!
 
 📧 [wearepodcastworkshop@gmail.com](mailto:%77%65%61%72%65%70%6f%64%63%61%73%74%77%6f%72%6b%73%68%6f%70%40%67%6d%61%69%6c%2e%63%6f%6d)
+
 💻http://wearepodcastworkshop.com
 
-
-http://www.facebook.com/podcastworkshop
-http://www.instagram.com/podcastworkshop
-http://www.twitter.com/podcastworkshop
+- http://www.facebook.com/podcastworkshop
+- http://www.instagram.com/podcastworkshop
+- http://www.twitter.com/podcastworkshop
 
